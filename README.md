@@ -1,1 +1,1 @@
-# Entrega-da-Aplica-o-Desktop-Parcial-Avaliacao2
+# Entrega-da-Aplicacao-Desktop-Parcial-Avaliacao2
